@@ -1,4 +1,5 @@
 🎨 Productos Creados – EstampaBox
+
 Este repositorio reúne una muestra de los productos que he creado de manera personalizada bajo el nombre EstampaBox. Cada pieza es fruto de mi trabajo como emprendedora, diseñadora y creadora, en donde combino técnicas de sublimación, estampado y armado artesanal para plasmar ideas tanto personales como corporativas.
 
 🧵 Sobre mí y este proyecto
